@@ -10,10 +10,10 @@
 
 ![](https://files.catbox.moe/4flo2d.gif)
 
-[pronouns](https://pronouns.cc/@tinfoiil)
+$\texttt{\color{#D0D0D0}   ‧₊˚♪ 𝄞₊˚⊹  }$ [pronouns](https://pronouns.cc/@tinfoiil) $\texttt{\color{#D0D0D0}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-[atabook](https://iknowuraddress.atabook.org/)
+$\texttt{\color{#D0D0D0}   ‧₊˚♪ 𝄞₊˚⊹  }$ [atabook](https://iknowuraddress.atabook.org/) $\texttt{\color{#D0D0D0}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-[sp](https://kiiiin.straw.page/)
+$\texttt{\color{#D0D0D0}   ‧₊˚♪ 𝄞₊˚⊹  }$ [sp](https://kiiiin.straw.page/) $\texttt{\color{#D0D0D0}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-[wip sp](https://thantophobiaaa.straw.page/)
+$\texttt{\color{#D0D0D0}   ‧₊˚♪ 𝄞₊˚⊹  }$ [wip sp](https://thantophobiaaa.straw.page/) $\texttt{\color{#D0D0D0}   ‧₊˚♪ 𝄞₊˚⊹  }$
