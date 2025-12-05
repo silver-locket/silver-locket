@@ -16,7 +16,7 @@ $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [atabook](https://iknowu
 
 $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [sp](https://kiiiin.straw.page/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [wip sp](https://thantophobiaaa.straw.page/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [wip sp](https://dacryphobia.straw.page/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
 ![](https://files.catbox.moe/wzh8bi.gif)
 
